@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @elizzel
 - 👀 I’m interested in everything xD
-- 🌱 I’m currently learning programming
-- 💞️ I’m looking to collaborate on everyone who wants ^^
-- 📫 How to reach me ...
+- 🌱 I’m currently learning nothing zZzzZz
+- 💞️ I’m bored
+- 📫 How to reach me ... is secret
 
 <!---
 elizzel/elizzel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
